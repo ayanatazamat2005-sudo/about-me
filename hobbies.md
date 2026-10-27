@@ -1,0 +1,1 @@
+Bos uaqytta programmalaumen ainalysamyn
